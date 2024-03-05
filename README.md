@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @realesite
+- 👀 I’m interested in web designing & application development.
+- 🌱 I’m currently learning HTML5, CSS & JavaScript.
+- 💞️ I’m looking to collaborate on website designing for clients.
+- 📫 How to reach me: korealemusic.ke@gmail.com
+- 😄 Pronouns: he/his 
+- ⚡ Fun fact: One Day or Day One? You Choose.
